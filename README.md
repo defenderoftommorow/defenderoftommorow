@@ -6,7 +6,7 @@
 <div align="center">
 ♡⸝⸝ (ponytown) dont be afraid 2 talk 2 me! im always open for new friends (｡- .•)
 <div align="center">
-૮ ․ ․ ྀིა (ponytown) 🌙 - might have a delayed reply, pls w2i! ⛔ - offtab, afk. might not respond for a longer period of time! 💚 - im here! feel free 2 int .ᐟ.ᐟ
+૮ ․ ․ ྀིა (ponytown) 🌙 - might have a delayed reply, pls w2i! ⛔ - offtab, afk. might not respond for a longer period of time! 💚 - im here! feel free 2 int .ᐟ.ᐟ sleeping - afk
 <img src="https://cdn.shopify.com/s/files/1/0067/5672/8914/files/ae233b0ead872c9635c201827ab07b25.png?v=1715242994">
 <div align="center">
 big ass gwen plushie!
